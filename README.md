@@ -12,7 +12,7 @@
 
 - 🌱 I’m currently learning **Java**
 
-- 📫 How to reach me **contactsandaru44@gmail.com**
+- 📫 How to reach me **Instagram**
 
 - ⚡ Fun fact **Im BatMan.**
 
